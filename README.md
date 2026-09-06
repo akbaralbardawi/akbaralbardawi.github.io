@@ -1,2 +1,0 @@
-# akbaralbardawi.github.io
-welcome
